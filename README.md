@@ -1,1 +1,1 @@
-# apollyonsixty9.palace.io
+# palace69.io
